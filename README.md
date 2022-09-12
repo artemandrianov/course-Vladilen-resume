@@ -1,1 +1,0 @@
-# course-Vladilen-resume
